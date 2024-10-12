@@ -1,0 +1,1 @@
+NewsMonkey app is free for reading all genres news about world and India.
